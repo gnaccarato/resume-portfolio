@@ -1,0 +1,1 @@
+Resume for Giovanni Naccarato. 2019.
